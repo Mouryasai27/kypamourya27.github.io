@@ -1,2 +1,2 @@
-# praneethreddypanyam.github.io
+# kypamourya27.github.io
 Portfolio
